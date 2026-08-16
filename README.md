@@ -24,6 +24,7 @@ Independent researcher and founder of the **Third Generation Research Initiative
 - [OpenAlex](https://openalex.org/authors/A5119566071)
 - [Academia.edu](https://open.academia.edu/OsamaQatrani)
 - [Muck Rack](https://muckrack.com/osama-qatrani)
+- [Patreon](https://www.patreon.com/osamaqatrani)
 
 ## Current initiative
 
